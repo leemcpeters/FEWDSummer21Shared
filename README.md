@@ -12,3 +12,4 @@ This is Manuel Blas  - Username ManuelBlxs
 Hello everyone! Ysabel
 Howdy - Randy W
 Hi, this is Mallory!
+Hi Laura
