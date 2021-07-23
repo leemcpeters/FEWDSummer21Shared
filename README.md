@@ -3,4 +3,4 @@ Our Practice repository for class
 
 Hi -Caleb
 Subrina:Hello!
-Gena: Hi!
+Genia: Hi!
