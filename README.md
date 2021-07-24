@@ -15,3 +15,4 @@ Howdy - Randy W
 Hi, this is Mallory!
 Hi Laura
 Hi  - Gena
+Hi Lee, Hi everyone
